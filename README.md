@@ -2,7 +2,6 @@ why do programmers like dark mode?
 
 because light attracts bugs
 
-
-https://user-images.githubusercontent.com/57934981/173224539-76fd75e6-e44c-4dae-8966-014dad393eb1.mp4
+https://user-images.githubusercontent.com/57934981/173225457-31bf1eef-5f7d-40d7-a9a1-ee012676109b.mp4
 
 🤣😂🤣😂🤣
